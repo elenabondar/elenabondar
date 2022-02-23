@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @elenabondar
+- 👀 I’m Recruiter/Sourcer at HYS Enterprise 
+- 🌱 Locate in Odessa, Ukraine
+- 📫 Telegram @elenabondarlml
